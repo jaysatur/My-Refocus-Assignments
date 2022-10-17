@@ -1,2 +1,1 @@
-# My-Refocus-Assignments
-My Refocus Assignments
+I'am Dante Pangan Satur Jr. Residing at #91 General Borommeo St. Longos,Manila. My hobbies is computer programming and watching documentary movies. I will push to gain more knowledge on web developing to get a nice job and help to innovate new tech on web development industry.
